@@ -4,4 +4,5 @@
 <h1> Good job Jules on learning Devops</h1>
 <h1> You will do a great job!! and be a great DevOps Engineer</h1>
 <h1> Thank you jesus for the good health, provison, shelther and great job for me and my family!</h1>
-<h1> I cant wait for you to start making big dollars!</h1>
+<h1>Through Jesus christ that strengthens me.</h1>
+<h1> I cant wait for you to start making big dollars!Bravo </h1>
